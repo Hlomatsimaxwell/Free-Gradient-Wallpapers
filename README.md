@@ -1,4 +1,5 @@
-![Cover](https://github.com/user-attachments/assets/ef3e3af6-7f38-4109-9f0d-ae5681aa9983)
+![Cover](https://github.com/user-attachments/assets/6046d372-6d61-4919-b212-b9cd1a0cf604)
+
 
 
 Still working mobile  :)        
